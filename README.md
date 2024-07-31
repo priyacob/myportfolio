@@ -1,1 +1,1 @@
-Here is my portfolio, read this and know about me..
+Here is my portfolio, read and know about me..
